@@ -1,1 +1,1 @@
-# My-syte2
+https://ingvar-ai.github.io/My-syte2/
